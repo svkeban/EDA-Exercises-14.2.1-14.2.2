@@ -1,1 +1,0 @@
-# Launchcode Women+ weekly coursework
